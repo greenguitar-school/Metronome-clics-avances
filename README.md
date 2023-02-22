@@ -2,6 +2,8 @@
 
 Clics avancés avec ralentissement ou accélération...
 
+[Playlist YouTube](https://www.youtube.com/playlist?list=PLDjo2z5YktqpDM94BHYlaIU3Y9Hdg-BXP)
+
 Bonne musique et bonne guitare ! :musical_score: :headphones: :musical_note: :notes:
 
 
