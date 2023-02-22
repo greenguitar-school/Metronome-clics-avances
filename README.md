@@ -1,6 +1,6 @@
-# :guitar: TITLE
+# :guitar: Métronome
 
-Description du tutoriel...
+Clics avancés avec ralentissement ou accélération...
 
 Bonne musique et bonne guitare ! :musical_score: :headphones: :musical_note: :notes:
 
